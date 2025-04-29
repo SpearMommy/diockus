@@ -1,4 +1,4 @@
 # diockus
 game of dickus
 
-we make a game with shit on dicks word
+we make a game with shit on dicks word hhhhhhhhhhh
